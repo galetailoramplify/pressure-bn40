@@ -1,4 +1,4 @@
-#  
+#  best Scripts for blox fruits is the best blox fruits Script, featuring teleport and unlimited stamina. Safe and powerful for all your needs.
 
 
 
